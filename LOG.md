@@ -13,3 +13,7 @@ Brooms & Misc - KEEP OUT
 ```
 
 Except the & sign was backwards. This is what initially intrieged me about the door. Before anyone noticed, I left the hallway and went back to my cube to continue work. The new door was on my radar now, and I was determined to go back to see if it was locked. The "KEEP OUT" would indicate that it was not a locking door. Brooms can't be all that interesting, but "Misc" is always very interesting to me. I'll plan to go there tomorrow.
+
+
+**01/21/2015** - I was unable to get back to the door yesterday due to a high workload. Today I had extra time so I went down there after eating a hurried lunch to investigate. The hallway, again, was empty. I was nervous as soon as my hand touched the doornob. It was unlocked! I then immediately heard a noise to my right that sounded like someone coughing. Quickly, and without looking too suspicious, I turned and acted like I was just walking dow the hallway. Now that I know it is an unlocked door, I can go back whenever I'd like.
+
